@@ -1,1 +1,1 @@
-"makeitbuy" is the free platform for buying and selling original clothes.
+"makeitbuy" is the free resale platform.
